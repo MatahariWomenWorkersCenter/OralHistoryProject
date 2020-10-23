@@ -3,7 +3,7 @@ title:               Matahari Oral History Project
 tagline:             'Documenting Domestic Workers In Boston'
 description:         'Content Might Go Here'
 url:
-baseurl:             ''
+baseurl:             '/lanyon/'
 paginate:            5
 permalink:           pretty
 
