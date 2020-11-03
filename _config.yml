@@ -4,7 +4,7 @@ tagline:             'Documenting Domestic Workers In Boston'
 description:         'Welcome to the Matahari Women’s Workers Collective Oral History Project Home. Here We will store and engage with the work of oral historians and the organization to catalog the stories of domestic workers and their employers in the Boston area.'
 url:                 'https://matahariwomenworkerscenter.github.io/'
 baseurl:             '/OralHistoryProject'
-paginate:            5
+paginate:            10
 permalink:           pretty
 
 # About/contact
