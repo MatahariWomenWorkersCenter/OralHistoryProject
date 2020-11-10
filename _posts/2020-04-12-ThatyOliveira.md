@@ -1,0 +1,5 @@
+---
+layout: history
+title: Thaty Oliveira, Expectations and Boundaries
+---
+>“I am very proud of the work I do and I pride myself in being with the child. So whenever it happens for someone, when I empty the dishwasher, if I do any housework, it’s because I want to and it’s because I have time; it’s not really in my job description. But when you do that and it becomes an expectation and if they’re calling you out for not doing it, then really, I get really upset and then I leave. That’s what happened once, like just at one point it just became a chore and I noticed but I’ve been doing this because I’ve had extra time and I’m trying to do a favor, but then it became like, this is twisted because the point when it became like oh just put the child to color and you do this for me, and it’s like no, because the kid’s always my first priority, and, for me, I’m very clear that I’m not gonna not watch your child to do housework. I’m fine with doing it if your child is sleeping, or naptime or something but, you know, I’m not gonna take out of my time with the child to do other work, it’s just not what I do.”
