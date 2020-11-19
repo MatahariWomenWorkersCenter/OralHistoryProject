@@ -7,3 +7,5 @@ title: AJ Diamonti, Empowering Caretakers
 
 
 **AJ Diamonti** shares his experience employing the domestic caretaker “Mina” through a nanny share group with another family. He reflects on the exploitation Mina experienced from the other employer and the importance of respect caretakers and their profession.
+
+*“Housing costs are the largest expense for most domestic workers; 60 percent spend more than half of their income on rent or mortgage payments...And most strikingly, one in five workers report that in the past month there were times when there was no food to eat of any kind in their own home because they had no resources to obtain it.*
