@@ -7,3 +7,5 @@ title: Tribora Kirkland, Normalcy
 “we’re crippling them just as much as we’re crippled so yeah.”
 
 **Tribora Kirkland** heavily discusses the blurred lines between family, professionalism, and employment. In addition to this, within her interview we get to see how her identity impacts her reality, expectations, and upbringing. 
+
+*Due to every household having a variety of tasks to be completed, the boundaries and limits that come with a “normal” job are nonexistent.*
