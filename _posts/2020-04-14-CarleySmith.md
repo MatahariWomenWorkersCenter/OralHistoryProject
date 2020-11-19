@@ -9,3 +9,5 @@ title: Carley Smith
 
 **Carly Smith**, a white college educated woman, sharing her experiences working as a nanny for a Jewish family in Newton for four years. While she appreciates her great relationship with her employer and didn’t find the need for a former contract, she does acknowledge that many of her colleagues do not have the type of luck as her. When learning about the Matahari project, Carly was intrigued by their work and would totally spread the words around with her friends. 
 
+*Despite their central role in the economy, domestic workers are often employed in substandard jobs. Working behind closed doors, beyond the reach of personnel policies, and often without employment contracts.*
+
