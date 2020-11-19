@@ -9,6 +9,15 @@ MataHari is a organization of women of color, immigrant women and families who o
 * Daniela Werlin-Martínez is a third year at Hampshire College studying Latin American history and labor organizing and history. Daniela is particularly interested in the communal and organizational ways people respond to structures of domination and oppression. 
 * Tasha Elizarde is a junior at Mount Holyoke College studying History, Business, and Asian Pacific American Studies. She enjoys making earrings, playing the ukulele, and eating matcha ice cream.
 * Helen Harrington studies history and German at Amherst College, with a social justice, rights, and inequality concentration.
+Bio
+* Gloria An is a fourth year at Hampshire College studying media studies and Asian-American studies. 
+* Emma Zeilnhofer is a third year student at Hampshire college studying American history and Museum curating. She likes reading and playing with her cats. 
+* Jordan Ballard is a second year at Hampshire College studying visual arts, activism and social justice; they enjoy sculpting and walks in the forest.
+* Joshua Luo is a third year student at Hampshire College studying East Asian and Asian American Studies
+* Amani Smith is a fourth year Div III student at Hampshire College. She is studying creative writing and film and working on a writing project about memory and intergenerational storytelling. 
+* Gwen Peavey Hunter is a third year student at Hampshire College. She is studying environmental humanities and is interested in postcolonial and feminist studies as well. She enjoys reading and going outside. 
+* Vaness Flores-Candia is a 4th year student at Hampshire College concentrating in sexual health education through a reproductive justice framework with a focus in Latin American studies. They also enjoy film, photography, and playing with their dog. 
+* Chloe Knoble is a fourth year student at Hampshire College with a concentration in disability studies. She enjoys cooking and hiking around Hampshire County.  
 
 
 
