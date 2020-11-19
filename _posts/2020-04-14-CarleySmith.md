@@ -1,4 +1,7 @@
-
+---
+layout: post
+title: Carley Smith
+---
 
 >“Um, yeah, so it’s funny, ’cause, I, you know, I know a lot of, you know, my friends, my nanny friends, they have, you know, a contract, “Hey,” like, we have, you know, “You have 3 weeks vacation,” you know, “Take it how you want. You have this amount of sick days to use that you wanna be paid for, or vice versa…” Um, um, and I don’t know, we never really came up with it— it, you know, it’s always them, you know, going on vacation, um, and they give me a good heads up, so typically I can like, if— take, you know, my vacation time around the same time as theirs…  Um, but it hasn’t really been an issue that I’m, like, going on vacation and I’m like, “Hey, I need this week off,” but you know, ’cause at the—they’re away a lot, and I’m, I mean, I’m paid every week no matter what.”
 
